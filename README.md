@@ -25,6 +25,7 @@ Awesome Chocolate Chip Cookie recipe from [Martha Stewart]("http://www.marthaste
 - 2 1/4 cups all-purpose flour
 - 1/2 teaspoon baking soda
 - 2 cups (about 12 ounces) semisweet and/or milk chocolate chips
+## Add 5 cups of cranberry and vodka
 
 
 ##Cooking Directions
@@ -43,6 +44,7 @@ Awesome Chocolate Chip Cookie recipe from [Martha Stewart]("http://www.marthaste
   8 to 10 minutes.
 - Remove from oven, and let cool on baking sheet 1 to 2 minutes.
 - Transfer to a wire rack, and let cool completely.
+- Have a drink (cranberry and vodka of course)! 
 
 ##Storage Directions
 - Store cookies in an airtight container at room temperature up to 1 week.
